@@ -69,7 +69,7 @@ It feels like a mix of **La La Land** and **Normal People**—emotionally intima
 
 ---
 
-# 🔍 Akimi's Pick: High Potential
+# 🔍 Micaella's Pick: High Potential
 
 ## ⚡ The Vibe
 A socially observant high schooler with a rare talent for understanding human behavior teams up with a seasoned detective to crack difficult cases while navigating personal challenges and secrets.
@@ -98,3 +98,35 @@ A socially observant high schooler with a rare talent for understanding human be
 
 ## 🔄 The Comparison
 It feels a lot like **Psych** mixed with **The Mentalist**—lighthearted but smart, full of sharp observations and genius-level problem solving.
+
+---
+
+# 🕷️ Jhenier's Pick: Spider-Man
+
+## 🏙️ The Vibe
+A perfect mix of action, humor, emotional moments, and coming-of-age struggles — it follows an ordinary teenager, Peter Parker, as he learns that being a hero comes with sacrifice and tough choices.
+
+---
+
+## 💡 Why It's a Must-Watch
+1. **Relatable Character Development:** Peter Parker struggles with everyday issues like school and money while trying to save the city.
+2. **Iconic Action:** The swinging sequences through New York and the fight choreography are visually satisfying and legendary.
+3. **Deep Emotional Themes:** Explores loss, guilt, and the heavy weight of responsibility in a way that feels deeply human.
+4. **Stunning Cinematography:** Especially in the *Spider-Verse* films, the visuals and soundtrack are unforgettable.
+
+---
+
+## 📊 Ratings
+| Category | Score |
+| :--- | :--- |
+| **Entertainment Value** | 10/10 |
+| **Emotional Balance** | 9/10 |
+| **Overall Rating** | **9/10** |
+
+---
+
+## 💬 Favorite Quote
+> “With great power comes great responsibility.” — *Uncle Ben*
+
+## 🔄 The Comparison
+It feels like a mix of **Marvel's Spider-Man** (game) and **The Batman**—combining fast-paced superhero action with heavy emotional character storytelling.
